@@ -1,4 +1,4 @@
-In my visual argument proposal, I wanted to create an argument about feeling helpless against the world in the modern day. However, 
+For my visual argument proposal, I wrote that I wanted to create an argument about feeling helpless against the world in the modern day. However, 
 since our last class, and after looking around at different images, I have decided to change my project. Instead, I want to create anargument that critiques
 modern day feminism's tendency to push women to be in the same roles and institutions as men, even if those institutions are harmful. The phrase "a seat 
 at the table" is something we often hear in regards to people from margianalized groups assuming roles that have been historically reserved for white men.
